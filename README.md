@@ -1,0 +1,2 @@
+# Dog-symmetrically-the-front-mathematical-barreirs-of-Systems-LLM-LLC
+The AI systems and LLM  I use that the dog symmetrically designed for mathematical barrier to who are trying to reached out the whole systems. That is when Iam updating additional  protection layer. The AI is become open worldwide when anthropics and autocars is trying to cloned  and build their own by providing 1&amp;2layer of systems which limited.
